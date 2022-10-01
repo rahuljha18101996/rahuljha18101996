@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rahuljha18101996@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/rahul-jha-801baa17a/](https://www.linkedin.com/in/rahul-jha-801baa17a/)
+- 📄 Know about my experiences [https://drive.google.com/file/d/14Ph8BVvi9k8clT0QRRbtw7OdzP7hEeHs/view?usp=sharing](https://drive.google.com/file/d/14Ph8BVvi9k8clT0QRRbtw7OdzP7hEeHs/view?usp=sharing)
 
 - ⚡ Fun fact **I like tea over coffee**
 
